@@ -1,0 +1,1 @@
+# https-fullstacklabs.github.io-assessment-cc-qa-manual-
